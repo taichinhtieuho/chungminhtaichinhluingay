@@ -5,7 +5,7 @@
 # Khi làm hồ sơ xin visa du học, du lịch hoặc định cư, một trong những yêu cầu quan trọng là chứng minh tài chính. Tuy nhiên, không phải ai cũng chuẩn bị sẵn tài chính hợp lệ trước thời điểm nộp hồ sơ. Vì thế, nhiều người tìm đến dịch vụ chứng minh tài chính lùi ngày như một giải pháp "chữa cháy". Nhưng hình thức này là gì? Có rủi ro gì không?
 
 # 
-
+Xem thêm: https://dichvutaichinh.vn/mo-so-tiet-kiem-lui-ngay.html
 # Chứng minh tài chính lùi ngày là gì?
 
 # Hiểu đơn giản, chứng minh tài chính lùi ngày là việc tạo ra một sổ tiết kiệm có ngày mở sổ trong quá khứ, nhằm thỏa mãn yêu cầu của lãnh sự quán về "thời gian gửi tiền". Ví dụ: Lãnh sự yêu cầu sổ tiết kiệm mở trước ngày nộp hồ sơ 3 tháng, nhưng bạn chưa chuẩn bị kịp, nên phải sử dụng sổ "lùi ngày" để hợp lệ.
